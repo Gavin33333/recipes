@@ -1,1 +1,1 @@
-# recipes
+This recipe is a garlic-butter steak recipe. This quick-and-easy skillet entree is definitely restaurant-quality and sure to become a staple at your house.
